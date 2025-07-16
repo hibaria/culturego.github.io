@@ -1,1 +1,0 @@
-# culturego.github.io
